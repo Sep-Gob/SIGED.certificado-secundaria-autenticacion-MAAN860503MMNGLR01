@@ -1,0 +1,2 @@
+# SIGED.certificado-secundaria-autenticacion-MAAN860503MMNGLR01
+MAAN860503MMNGLR01
